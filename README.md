@@ -1,2 +1,0 @@
-# CORONA
-informações sobre coronavírus
