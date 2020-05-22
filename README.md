@@ -1,2 +1,0 @@
-# PORTALCORONA
-informações sobre coronavírus
